@@ -1,4 +1,4 @@
-#  
+#  baddies Scripts rare offers the most advanced baddies Script, with custom skins and no cooldown. Perfect for dominating any match.
 
 
 
